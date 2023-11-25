@@ -1,7 +1,8 @@
 # osu-skins
 this repo contains all skin ive used throughout my tiktok vids
 
-Im too lazy to include pics so just download every single one ig lol
+Im too lazy to include pics so just download every single one ig lol 
+some skin i didnt give original link coz some are broken (@2x thing)
 
 <p>1. Aristia instafade with Mirei's hitsound and no nightcore hitsound (metronomes): <a href="https://afterlight0338.s-ul.eu/2gYrdEia" download>Download Skin</a></p>
 
