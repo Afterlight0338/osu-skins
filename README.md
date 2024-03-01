@@ -13,3 +13,5 @@ some skin i didnt give original link coz some are broken (@2x thing)
 <p>4. Ryou Yamada skin (by Abah): <a href="https://afterlight0338.s-ul.eu/7k8R3Km4" download>Download Skin</a></p>
 
 <p>5. KushMedieval (red/white): <a href="https://afterlight0338.s-ul.eu/ZlI5E3CX" download>Download Skin</a></p>
+
+<p>6. boop skin: <a href="https://skins.osuck.net/skins/1671?v=0" download>Download Skin</a></p>
