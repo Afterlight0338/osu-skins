@@ -14,4 +14,4 @@ some skin i didnt give original link coz some are broken (@2x thing)
 
 <p>5. KushMedieval (red/white): <a href="https://afterlight0338.s-ul.eu/ZlI5E3CX" download>Download Skin</a></p>
 
-<p>6. boop skin: <a href="https://skins.osuck.net/skins/1671?v=0" download>Download Skin</a></p>
+<p>6. boop instafade skin: <a href="https://afterlight0338.s-ul.eu/jaBo079g" download>Download Skin</a></p>
