@@ -4,7 +4,7 @@ this repo contains all skin ive used throughout my tiktok vids
 Im too lazy to include pics so just download every single one ig lol 
 some skin i didnt give original link coz some are broken (@2x thing)
 
-My main skin:
+My main skin (the one youre looking for from my latest tiktok vid):
 
 <p>- # Afterlight Mix #1: <a href="https://afterlight0338.s-ul.eu/07B2bqQx" download>Download Skin</a></p>
 
