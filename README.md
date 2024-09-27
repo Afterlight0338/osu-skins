@@ -4,8 +4,11 @@ this repo contains all skin ive used throughout my tiktok vids
 Im too lazy to include pics so just download every single one ig lol 
 some skin i didnt give original link coz some are broken (@2x thing)
 
-commonly used: 2, 8
+My main skin:
 
+<p>- # Afterlight Mix #1: <a href="https://afterlight0338.s-ul.eu/07B2bqQx" download>Download Skin</a></p>
+
+Previously used:
 
 <p>1. Aristia instafade with Mirei's hitsound and no nightcore hitsound (metronomes): <a href="https://afterlight0338.s-ul.eu/2gYrdEia" download>Download Skin</a></p>
 
