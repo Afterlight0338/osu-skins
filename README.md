@@ -12,6 +12,9 @@ My main skin (the one youre looking for from my latest tiktok vid):
 
 <p>- # Afterlight Mix #5: <a href="https://drive.google.com/file/d/1iQwga8KxPJyDMiEB2f5WilauHH8qHbJU/view?usp=sharing" download>Download Skin</a></p>
 
+<p>- # Afterlight Mix #6: <a href="https://drive.google.com/file/d/13qamkiJEndDGwl03aEytNbq-6bauLU1d/view?usp=sharing" download>Download Skin</a></p>
+
+
 Previously used:
 
 <p>1. Aristia instafade with Mirei's hitsound and no nightcore hitsound (metronomes): <a href="https://afterlight0338.s-ul.eu/2gYrdEia" download>Download Skin</a></p>
